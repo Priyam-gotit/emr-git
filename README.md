@@ -1,2 +1,5 @@
-# emr-git
-git workshop
+#include<stdio.h>
+int jcdghjkvc,mnhjycnbhc
+Afdhfcnzxhgsc
+gbcxvhgyuewhdxX
+fhdb,adgf,xsI
